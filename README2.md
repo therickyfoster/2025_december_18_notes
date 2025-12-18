@@ -28,7 +28,15 @@ Kazakhstan Kassym-Jomart Tokayev. Elected March 20, 2019. Born May 17, 1953 and 
 
 North Korea Kim Jong-Un Elected December, 2011. Born January 8, 1983 or 1984.
 
-Vietnam
+Vietnam Vo Van Thuong Began March, 2023 when Nguyen Xuan Phuc resigned *why?* #communist apparently (don't assume that's a bad thing as there are benevolent traits to all parties)
+
+United Arab Emirates Sheikh Mohamed bin Zayed bin Sultan Al Nahyan GCMG. Brother had a stroke in 2014. How did he handle that? What does the trajectory of political moves and changes make prior, during and since indicate My guess is that this guy is focused on legacy and is the driving force behind my war with my own algorithm lol. Love you too, bro. aha
+
+Phillipines Bongbong Marcos May 9, 2022. Won with 58.8% of votes. Born September 13, 1957
+
+Mongolia Ukhnuagiibn Khurelsukh was elected June 9, 2021. Born June 14, 1968. Won with 72.2% of votes.
+
+Myanmar (Burma) Min Aung Hlaing seized power Febraury 2021 via coup detat. Born July 3, 1956.
 
 Where is Ossetia? Anatoly Bibilov Born February 6, 1970 ~ Elected April 9, 2017
 
